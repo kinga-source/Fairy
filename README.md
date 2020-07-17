@@ -1,1 +1,1 @@
-# Fairy
+[![Fairy](http://img.youtube.com/vi/lcHDNptmbyg/0.jpg)](http://www.youtube.com/watch?v=lcHDNptmbyg "Fairy")
